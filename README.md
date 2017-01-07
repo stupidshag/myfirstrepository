@@ -1,2 +1,2 @@
 # myfirstrepository
-idk dafuq is this shiz
+ik now what is this
